@@ -13,3 +13,10 @@ what is this, english class? a 5 scentence paragraph about the lack of phones? s
 # September 8, 2025
 (wow, this really IS english class, huh?)
 A career i am interested in is creating videos online for people to watch. yeah, there's not much to explain here, it literally IS computer science. it would not exist without computers. especially vtubing, the specific branch i want to go into. i can't really say much else about it.
+
+
+# September 15, 2025
+We, yes WE, you me and everyone else, HATE AI
+so my idea? create an ai program to detect any ai generated content and leak the creator's IP address.
+...that's... about it. 5 whole scentences? english is my worst subject, i'm not taking this class just for it to be another writing class...
+although it's not like i've been working on my game much. i've been geting to distracted by the features i already have, i just keep playing it rather than actually working on it. whoops. actually, isn't that what happened with Silksong? yeah, this'll be great.
