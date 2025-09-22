@@ -20,3 +20,8 @@ We, yes WE, you me and everyone else, HATE AI
 so my idea? create an ai program to detect any ai generated content and leak the creator's IP address.
 ...that's... about it. 5 whole scentences? english is my worst subject, i'm not taking this class just for it to be another writing class...
 although it's not like i've been working on my game much. i've been geting to distracted by the features i already have, i just keep playing it rather than actually working on it. whoops. actually, isn't that what happened with Silksong? yeah, this'll be great.
+
+# September 22, 2025
+Working virtual jobs in the future? surely you jest... it is simply absurd that you will be able to, in the future, make money virtually.
+you can do it NOW!
+there are several virtual jobs, even ignoring... whatever ikea's trying to do. which, what exactly is it? working in a virtual store? for real money? that i don't understand.
