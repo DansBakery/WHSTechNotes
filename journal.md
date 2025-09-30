@@ -25,3 +25,6 @@ although it's not like i've been working on my game much. i've been geting to di
 Working virtual jobs in the future? surely you jest... it is simply absurd that you will be able to, in the future, make money virtually.
 you can do it NOW!
 there are several virtual jobs, even ignoring... whatever ikea's trying to do. which, what exactly is it? working in a virtual store? for real money? that i don't understand.
+
+# September 30, 2025
+Humanity has lived far too long. this "god" guy was onto something when he flooded the earth, maybe we should do that again.
