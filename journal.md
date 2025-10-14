@@ -28,3 +28,6 @@ there are several virtual jobs, even ignoring... whatever ikea's trying to do. w
 
 # September 30, 2025
 Humanity has lived far too long. this "god" guy was onto something when he flooded the earth, maybe we should do that again.
+
+# october 6, 2025
+personally, i'd ban ai websites and obviously anything innaproppriate, but besides that, i'd leave it up to the teachers to regulate their own students. i also wouldn't ban phones.
